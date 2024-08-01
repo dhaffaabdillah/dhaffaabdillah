@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **dhaffdhaff1@gmail.com**
 
-- 📄 Know about my experiences [https://dhaffaabdillah.my.id](https://dhaffaabdillah.my.id)
+- 📄 Know about my experiences [https://dhaffaabdillah.my.id](https://dhaffaabdillah.com)
 
 - ⚡ Fun fact **Learn, learn, and learn until I understand. Give me time and spaces, so I will learn and do anything.**
 
